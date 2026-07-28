@@ -1,5 +1,5 @@
 # Wesley Alves de Oliveira
-[wesleyalvesolioveira2009@](wesleyalvesoliveira2009@gmail.com) | (19) 99434-0901 | [linkedin](www.linkedin.com/in/wesley-a-86b9663b2) | [github](https://github.com/wesleyalvesoliveira-cmd)
+[wesleyalvesolioveira2009@](wesleyalvesoliveira2009@gmail.com) | (19) 99434-0901 | [linkedin](https://www.linkedin.com/in/wesley-a-86b9663b2/) | [github](https://github.com/wesleyalvesoliveira-cmd)
 Sumaré SP
 
 ## objetivo profissional🎯
